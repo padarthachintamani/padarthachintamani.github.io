@@ -1,0 +1,1 @@
+Copyright © www.padarthachintamani.com 2017
